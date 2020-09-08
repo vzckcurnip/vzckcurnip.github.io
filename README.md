@@ -1,1 +1,0 @@
-# vzckcurnip.github.io
